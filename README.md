@@ -1,0 +1,1 @@
+Baseado em : https://www.bing.com/videos/search?q=macoratti+c%23&&view=detail&mid=E83A5C500BE6754CCC90E83A5C500BE6754CCC90&&FORM=VRDGAR&ru=%2Fvideos%2Fsearch%3Fq%3Dmacoratti%2520c%2523%26qs%3DCT%26form%3DQBVR%26%3D%2525eManage%2520Your%2520Search%2520History%2525E%26sp%3D1%26pq%3Dmacoratti%2520%26sc%3D8-10%26cvid%3DEA9D72DCCE6E4DADAFAC3AD7D9549FBC
